@@ -1,2 +1,1 @@
-# Mj
-Only study purpose 
+
